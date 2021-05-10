@@ -1,1 +1,1 @@
-# muchos_bloques
+Usa este datapack aporopiadamente. No rodees la casa de tu amigo y/o familiar. Este datapack es meramente para divertirse y no para causar conflictos. Esta prohibido modificar esta datapack para que haga diferentes funciones. Gracias, ElChuyAlien
